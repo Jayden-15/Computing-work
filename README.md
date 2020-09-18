@@ -1,10 +1,8 @@
 A fun Teachers' day gift project[jayden story]
 It is teacher's day
-i am still trying to understand this
+I arrived at school early to prepare for the surprise.
+When I entered the classrom, I saw people busy getting it together.
 
-Need more work.
-
-Need more work and work.
 
 
 
